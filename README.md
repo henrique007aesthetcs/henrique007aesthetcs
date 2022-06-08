@@ -1,6 +1,6 @@
 - 👋 olá meu nome é @henrique007aesthetcs
 - 👀 VIVA A ESTETICA
 - 🌱 BODYBUILDER
-- 💞️ CASTOR DELAS
+- 💞️ HENRIQUE DELA
 - 📫 "No meio do inverno sombrio"
 
