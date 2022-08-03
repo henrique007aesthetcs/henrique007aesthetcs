@@ -2,5 +2,5 @@
 - 👀 VIVA A ESTETICA
 - 🌱 BODYBUILDER
 - 💞️ HENRIQUE ALONE
-- 📫 "No meio do inverno sombrio"
+- 📫 "E até pense que temos o mesmo estilo de vida, eu simplesmente não existo."
 
